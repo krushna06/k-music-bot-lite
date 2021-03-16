@@ -12,4 +12,4 @@ k music bot advance
 
 sub to me on youtube and in the comments section or in the discussion section ask me to make the code for it i will make it.
 
-bye :)
+THANK YOU :)
